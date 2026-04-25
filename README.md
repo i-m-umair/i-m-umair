@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am M Umair Sabir <br>Student of Aviation department<br>Studying at UMT Lahore<br>
+Myself, M Umair Sabir | Student of Aviation department | Studying at UMT Lahore
 
 
 ## 🌐 Socials:
